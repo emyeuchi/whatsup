@@ -1,2 +1,2 @@
 # whatsup
-its so hard
+git and github are so difficult thst I can't use!!
